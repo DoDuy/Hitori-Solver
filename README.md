@@ -5,4 +5,4 @@ Project nghiên cứu khoa học của mình ở trường đại học trong n�
 - Giải nhì nghiên cứu khoa học cấp khoa Công nghệ thông tin, giải ba nghiên cứu khoa học cấp trường Đại học Công Nghệ - DH Quốc Gia Hà Nội.
 - Đạt điểm 9.1 khóa luận tốt nghiệp.
 #
-Mọi sự quan tâm xin liên hệ về hòm thư duydo.tk@gmail.com
+Mọi sự quan tâm xin liên hệ về hòm thư xxx@gmail.com
